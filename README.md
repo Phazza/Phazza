@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning about AI and I've done many courses to start to develop a good foundation on which I can build when protecting clients' inventions.
 - 💞️ I’m looking to collaborate on anything - Who is my teacher?  Anyone willing to share knowledge with a view to building one another up.
 - 📫 How to reach me reetmon007ai@gmail.com  
-- 😄 Pronouns: I'm too old for that - I'm a bloke
+- 😄 Pronouns: I'm too old for that - I'm just a bloke
 - ⚡ Fun fact: Black Belt in Tae Kwon Do, and started playing table tennis again after a 30 yr break!
 
 <!---
